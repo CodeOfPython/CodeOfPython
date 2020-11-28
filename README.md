@@ -24,10 +24,6 @@
 
 ---
 
-### 📺 Latest YouTube Videos
-
-
-### 📕 Latest Blog Posts
 
 
 
